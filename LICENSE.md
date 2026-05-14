@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new coin sniper bot with high-frequency new coin sniper bot | bundle-transactions + contract-verification. Featuring bundle-transactions and
 
 
 
